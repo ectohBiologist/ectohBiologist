@@ -1,10 +1,24 @@
 # . ݁₊ ⊹ . ݁˖ . ݁ welcome !
-my name is **stripe**, i go by **he / him** ! 
+my name is **stripe**, i'm 17 and i go by **he / him** !   
+  
 active on safe, you can find me in the homestuck area!
-
+  
 ## ⊹ my main interests !
->homestuck,
->undertale,
->deltarune,
->minecraft,
->my ocs!
+#### ₊ these are the interests i'll be showcasing on PT, for more see below !
+>homestuck  
+>undertale  
+>deltarune  
+>minecraft  
+>my ocs!  
+>fnaf
+
+## ⊹ more info !
+
+- i'm extremely talkative, feel free to message me whenever !
+- i'm **<ins>taken</ins>** please do **<ins>NOT</ins>** flirt with me, jokingly or not ! it makes me uncomfortable !
+- i have no desire to be included in any drama, please respect this !
+
+
+  
+# wip wip wip wip wip
+![gamzee](https://media.tenor.com/ca-v0U4BWrYAAAAj/gamzee-makara-dance.gif)

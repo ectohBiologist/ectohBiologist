@@ -22,4 +22,4 @@ active on safe, you can usually find me in the homestuck area, and occasionally 
 
   
 ## ⊹ my pony gallery !
-![gamzee](https://i.imgur.com/Eg8D5o7.gif) ![karkat](https://i.imgur.com/2hF0eQz.gif) ![susie](https://i.imgur.com/i5DdJzp.gif) ![ralsei](https://i.imgur.com/nzVQhYl.gif) ![lancer](https://i.imgur.com/tV8HvHx.gif)
+![gamzee](https://i.imgur.com/Eg8D5o7.gif) ![karkat](https://i.imgur.com/2hF0eQz.gif) ![susie](https://i.imgur.com/i5DdJzp.gif) ![ralsei](https://i.imgur.com/nzVQhYl.gif) ![lancer](https://i.imgur.com/tV8HvHx.gif) ![mettaton ex](https://i.imgur.com/oRUhdDW.gif)

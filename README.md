@@ -1,4 +1,4 @@
-# . ݁₊ ⊹ . ݁˖ . ݁ welcome !
+# ⊹ . ݁˖ . ݁ welcome !
 my name is **stripe**, i'm 17 and i go by **he / him** !  ![transgender pride flag](https://i.postimg.cc/6q5tgvQP/transgender-5-stripes-20-px.png)  ![gay male pride flag](https://i.postimg.cc/gc5MkX6x/ocean-5-stripe.png)
   
 active on safe, you can usually find me in the homestuck area, and occasionally the ut / dr area !

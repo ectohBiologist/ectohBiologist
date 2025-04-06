@@ -1,8 +1,8 @@
 # ⊹ . ݁˖ . ݁ welcome ! ![ok](https://64.media.tumblr.com/tumblr_m7y2q2r3OR1qljw4m.gif)
 ### ⊹  _"SoMeOnE ClIp tHeIr mOtHeRfUcKiN WiNgS So i sTaNd a cHaNcE! wHoOpS, i mEaN SiT A ChAnCe, FuCk..."_ 
-my name is **stripe**, i'm 17 and i go by **he / him** !  ![transgender pride flag](https://i.postimg.cc/6q5tgvQP/transgender-5-stripes-20-px.png)  ![gay male pride flag](https://i.postimg.cc/gc5MkX6x/ocean-5-stripe.png)
+my name is **stripe**, i'm 18 and i go by **he / him** !  ![transgender pride flag](https://i.postimg.cc/6q5tgvQP/transgender-5-stripes-20-px.png)  ![gay male pride flag](https://i.postimg.cc/gc5MkX6x/ocean-5-stripe.png)
   
-active on safe, you can usually find me in the homestuck area, and occasionally in the ut / dr area !
+active on 18+ and safe, you can find me in the homestuck area, and occasionally in the ut / dr area !
   
 ## ⊹ my main interests !
 #### ₊ these are the interests i'll be showcasing on PT, for more see below !
